@@ -1,6 +1,6 @@
 # Meta-Masters-Guild-Airdrop
 
-<a href="https://ibb.co/4sNfb25"><img src="https://i.ibb.co/n3k0XB5/NFTereum-4.png" alt="NFTereum-4" border="0"></a>
+<a href="https://nftereum.org/tokens/memag-airdrop"><img src="https://i.ibb.co/n3k0XB5/NFTereum-4.png" alt="NFTereum-4" border="0"></a>
 
 Claim 2,000 MEMAG Tokens:
 
